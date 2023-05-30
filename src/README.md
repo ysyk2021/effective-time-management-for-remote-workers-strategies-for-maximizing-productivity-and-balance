@@ -10,4 +10,4 @@ In this chapter, we will introduce the importance of time management for remote 
 
 Whether you are new to remote work or a seasoned veteran, this book will help you develop a more efficient and balanced work routine. By learning and applying the techniques outlined in these pages, you can become a master of time management and enjoy the many benefits that come with remote work.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
