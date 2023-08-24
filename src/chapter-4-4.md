@@ -1,5 +1,3 @@
-Addressing Procrastination
-============================================================================
 
 Assessing time management habits is critical for remote workers to optimize their productivity and manage their time effectively. Procrastination can be a significant obstacle to effective time management, and remote workers need to address it to achieve their goals. In this chapter, we'll explore how remote workers can assess their time management habits and address procrastination.
 

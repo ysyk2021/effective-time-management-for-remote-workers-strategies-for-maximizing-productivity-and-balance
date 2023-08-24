@@ -1,5 +1,3 @@
-Chapter 9: Measuring Results and Learning from Experience
-=========================================================
 
 Effective time management requires ongoing evaluation and adaptation to ensure success. In this chapter, we'll explore strategies for measuring results, learning from experience, and adapting to changes in the remote workplace.
 

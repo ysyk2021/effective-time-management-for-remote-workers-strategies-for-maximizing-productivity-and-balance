@@ -1,5 +1,3 @@
-Creating Work-Life Boundaries
-=================================================================
 
 Effective time management for remote workers involves balancing work responsibilities with personal and family obligations. In this chapter, we'll explore how to create work-life boundaries to achieve a better balance.
 

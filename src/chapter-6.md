@@ -1,5 +1,3 @@
-Chapter 6: Managing Distractions and Interruptions
-==================================================
 
 Managing distractions and interruptions is critical for remote workers to optimize their productivity and manage their time effectively. In this chapter, we'll explore strategies for identifying common distractions in the remote workplace, developing strategies for avoiding them, minimizing interruptions and disruptions, and staying focused and on task.
 

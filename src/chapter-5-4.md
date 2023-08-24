@@ -1,5 +1,3 @@
-Incorporating Breaks and Rest
-========================================================================
 
 Creating a schedule is a critical part of effective time management for remote workers. In this chapter, we'll explore how to create an effective schedule that incorporates breaks and rest.
 

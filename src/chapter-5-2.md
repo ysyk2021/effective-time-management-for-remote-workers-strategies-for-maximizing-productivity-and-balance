@@ -1,5 +1,3 @@
-Identifying Peak Productivity Times
-==============================================================================
 
 Creating an effective schedule is critical for remote workers to optimize their productivity and manage their time effectively. By identifying peak productivity times, remote workers can schedule tasks when they're most alert and focused. In this chapter, we'll explore how remote workers can create an effective schedule by identifying their peak productivity times.
 

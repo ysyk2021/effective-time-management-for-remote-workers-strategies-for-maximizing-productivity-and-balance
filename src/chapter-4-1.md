@@ -1,5 +1,3 @@
-Identifying Your Time Wasters
-===============================================================================
 
 Assessing your time management habits is critical for remote workers to optimize their productivity and manage their time effectively. By identifying time wasters, remote workers can eliminate distractions, focus on priorities, and achieve their personal and professional goals. In this chapter, we'll explore how remote workers can assess their time management habits and identify their time wasters.
 

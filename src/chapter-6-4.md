@@ -1,5 +1,3 @@
-Staying Focused and On Task
-===============================================================================
 
 Managing distractions and interruptions is critical for remote workers to optimize their productivity and manage their time effectively. By staying focused and on task, remote workers can accomplish more in less time and achieve a healthier work-life balance. In this chapter, we'll explore how remote workers can manage distractions and interruptions.
 

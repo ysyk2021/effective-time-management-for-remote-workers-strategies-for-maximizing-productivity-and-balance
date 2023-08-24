@@ -1,5 +1,3 @@
-Understanding the Science Behind Time Management
-=====================================================================================
 
 Time management is a critical skill for remote workers who need to balance work responsibilities with personal and family obligations. In this chapter, we'll define time management and explore the science behind it.
 

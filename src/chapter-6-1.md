@@ -1,5 +1,3 @@
-Common Distractions in the Remote Workplace
-===============================================================================================
 
 Remote work has many advantages such as the flexibility to work from anywhere, no daily commute, and increased productivity. However, remote workers face a unique set of distractions that can negatively impact their ability to focus and be productive.
 

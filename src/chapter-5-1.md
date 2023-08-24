@@ -1,5 +1,3 @@
-Setting Priorities and Establishing Boundaries
-=========================================================================================
 
 Creating an effective schedule is critical for remote workers to optimize their productivity and manage their time effectively. By setting priorities and establishing boundaries, remote workers can ensure that they're working on the most important tasks and completing them in a timely manner. In this chapter, we'll explore how remote workers can create an effective schedule by setting priorities and establishing boundaries.
 

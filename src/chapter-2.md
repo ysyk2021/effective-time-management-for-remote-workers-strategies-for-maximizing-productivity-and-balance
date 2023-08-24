@@ -1,5 +1,3 @@
-Chapter 2: Defining Time Management
-===================================
 
 Time management is a critical skill for remote workers to optimize their productivity and manage their time effectively. In this chapter, we'll provide an overview of time management, explore the science behind time management, and provide tips for assessing your personal approach to time management.
 

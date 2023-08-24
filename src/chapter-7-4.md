@@ -1,5 +1,3 @@
-Avoiding Information Overload
-===================================================================================
 
 Remote workers have access to a vast amount of information through technology, which can be both a blessing and a curse. While it's helpful to have easy access to information, it can also lead to information overload. This can cause remote workers to become overwhelmed, distracted, and unproductive. In this chapter, we'll explore how remote workers can leverage technology to avoid information overload and optimize their productivity.
 

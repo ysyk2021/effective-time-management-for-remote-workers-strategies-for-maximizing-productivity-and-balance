@@ -1,5 +1,3 @@
-Adapting to Changes in the Remote Workplace
-======================================================================================================
 
 Measuring results and learning from experience is an essential component of effective time management for remote workers. However, as the remote workplace continues to evolve, it's important to adapt your time management strategies accordingly. In this chapter, we'll explore how remote workers can measure their results, learn from experience, and adapt their time management strategies to changes in the remote workplace.
 

@@ -1,5 +1,3 @@
-Chapter 4: Assessing Your Time Management Habits
-================================================
 
 Assessing your time management habits is critical for remote workers to identify areas for improvement and optimize their productivity. In this chapter, we'll explore strategies for identifying time wasters, analyzing how you spend your time, recognizing patterns and habits, and addressing procrastination.
 

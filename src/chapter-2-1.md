@@ -1,5 +1,3 @@
-Overview of Time Management
-================================================================
 
 Time management is a vital skill for remote workers who need to balance work responsibilities with personal and family obligations. In this chapter, we'll provide an overview of time management, including its benefits, principles, and tools.
 

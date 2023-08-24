@@ -1,5 +1,3 @@
-Allocating Time for Tasks and Projects
-=================================================================================
 
 Creating an effective schedule is critical for remote workers to optimize their productivity and manage their time effectively. By allocating time for tasks and projects, remote workers can ensure that they're working on the most important tasks and completing them in a timely manner. In this chapter, we'll explore how remote workers can create an effective schedule by allocating time for tasks and projects.
 

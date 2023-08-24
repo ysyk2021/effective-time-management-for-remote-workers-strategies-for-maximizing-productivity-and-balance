@@ -1,5 +1,3 @@
-Techniques for Cultivating a Time Management Mindset
-=====================================================================================================
 
 Effective time management is not just about using the right tools and techniques. It also involves developing a mindset that supports productivity, efficiency, and work-life balance. In this chapter, we'll explore techniques for cultivating a time management mindset.
 

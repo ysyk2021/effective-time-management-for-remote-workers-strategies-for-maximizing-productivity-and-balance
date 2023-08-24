@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Time Management
-========================================================================================
 
 Effective time management is critical for remote workers looking to maximize their productivity and achieve a better work-life balance. In this chapter, we'll explore how to assess your personal approach to time management.
 

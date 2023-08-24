@@ -1,5 +1,3 @@
-Chapter 3: Developing a Time Management Mindset
-===============================================
 
 Developing a time management mindset is critical for remote workers to optimize their productivity and manage their time effectively. In this chapter, we'll explore techniques for cultivating a time management mindset, utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through time management.
 
