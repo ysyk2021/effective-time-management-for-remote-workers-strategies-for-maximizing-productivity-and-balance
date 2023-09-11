@@ -1,5 +1,4 @@
-Chapter 3: Assessing Your Personal Approach to Time Management
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of assessing your personal approach to time management as a remote worker. By understanding your current habits, strengths, and areas for improvement, you can develop a tailored and effective time management system that maximizes productivity and balance.
 

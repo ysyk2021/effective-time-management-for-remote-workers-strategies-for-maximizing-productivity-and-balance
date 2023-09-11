@@ -1,5 +1,4 @@
-Chapter 2: Overview of Time Management
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of time management and its importance for remote workers. Understanding the principles and strategies of effective time management is essential for maximizing productivity, maintaining a healthy work-life balance, and achieving success as a remote worker.
 

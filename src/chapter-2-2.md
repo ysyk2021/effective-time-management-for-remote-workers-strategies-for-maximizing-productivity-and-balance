@@ -1,5 +1,4 @@
-Chapter 4: Understanding the Science Behind Time Management
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the science behind time management and explore how understanding certain concepts can enhance your ability to effectively manage your time as a remote worker. By delving into the psychology and neuroscience of time management, you can gain valuable insights and strategies for maximizing productivity and balance.
 
